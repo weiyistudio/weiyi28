@@ -16,7 +16,6 @@ SSM数码产品销售网站设计与开发
 ![输入图片说明](https://images.gitee.com/uploads/images/2020/1128/010700_b406e6ff_4865385.png "屏幕截图.png")
 
 
-工作室长期接单 招校园实力代理
-需要源码请加我一下联系方式
+联系方式
 联系Q：2762501186
 ![输入图片说明](https://images.gitee.com/uploads/images/2020/1119/003728_cd598bb9_4865385.jpeg "微信.jpg")
